@@ -28,3 +28,5 @@ License (Use Responsibly...ish)
 This "operating system" is provided "as is," with all its quirks and potential for digital mayhem. We're pretty sure there isn't a real license involved here, but if there were, it would probably say something along the lines of "Don't blame us if your computer starts acting sus."
 
 You have been warned. Now go forth (or maybe just stay put and watch cat videos).
+
+Guide for installation: https://www.youtube.com/watch?v=dQw4w9WgXcQ
