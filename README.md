@@ -1,1 +1,1 @@
-![Sussy Windows 10](https://raw.githubusercontent.com/LittleGithubBuilder/sussy-wussy-windows10/main/img.png)
+![Sussy Windows 10](https://lh3.googleusercontent.com/gg/AAHar4cIn0d9aGkeBapvB6WWFweJOEz7jIyP41mqaATF6KPmI3vjOBmoSPCl19nWZ3ReB_i2dK2f7NWE0WOSVWjSdN8ciqwSOybNGl6kgudXMI0ByrIiRudrG124k3MKx7rKpScrFCobd20VywVeUqTwSHPvK74JSo2L8f0W4zISGGf5g4V9FREupMpO4qG4PVDjI4BP4jXHQhStOuyRvDqPasEtDJXeFb-6OjtlEE59OZ-PKX6LEzPUGKfmOpw0H-SS484D5IDGRzRgBjB5y8k-hl0QyGUhRcvwqZI=d?authuser=1)
